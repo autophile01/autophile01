@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **aishwaryamotghare313@gmail.com**
 
-- ⚡ Fun fact **I am a organized freak**
+- ⚡ Fun fact **I am an organized freak**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
